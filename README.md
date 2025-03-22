@@ -1,4 +1,4 @@
-# -Love-Frequency-Chart-The-Heartbeat-of-Long-Distance-and-Cross-Border-
+# Love-Frequency-Chart-The-Heartbeat-of-Long-Distance-and-Cross-Border-
 
 # 💖 Love Frequency Tracker 📊  
 **Analyzing Chat Trends in Long-Distance and Cross-Border Relationships**  
